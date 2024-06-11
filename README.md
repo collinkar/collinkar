@@ -2,7 +2,7 @@
 - 👀 I’m interested in images, astrology, personal development, health
 - 🌱 I’m currently learning astrology, AI image generation
 - 💞️ I’m looking to collaborate on AI image design
-- 📫 How to reach me karin.collinsworth@gmail.com
+- 📫 How to reach me facebook/karincollinsworth
 - 😄 Pronouns: She/her
 - ⚡ Fun fact: I'm biologically 20 years younger than my chronological age - despite having had diabetes over 35 years.
 
